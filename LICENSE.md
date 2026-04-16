@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot automatic Script invisibility plus one-hit kill, the #1 Script. Includes
 
 
 ---
